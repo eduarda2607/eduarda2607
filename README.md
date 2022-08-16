@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @eduarda2607
+- 👀 I’m interested in books
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me
+--->
